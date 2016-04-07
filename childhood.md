@@ -1,5 +1,4 @@
-# Chapter 1
-## Childhood
+# Childhood
 
 I never understand how other authors can so accurately reflect on their early years of childhood. 
 Memories are only just forming yet they can easily recount such detail which amazes me. 
